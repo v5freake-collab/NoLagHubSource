@@ -1,0 +1,1 @@
+This is NolagHub, a popular script hub for Grow a Garden on Roblox. You are allowed to use or modify scripts from here, but please note that this source is not mine, and I do not claim ownership of the original work.
